@@ -1,4 +1,4 @@
-# <p align="center"> " OH , NOT AGAIN , NOW THE TRAIN'S GONE AND LEFT ! " </p>
+## <p align="center"> " OH , NOT AGAIN , NOW THE TRAIN'S GONE AND LEFT ! " </p>
 <p align="center"> <img width="1200" height="452" src="https://github.com/user-attachments/assets/94bcb3d5-e555-4532-818f-71da06c98d8b" /> </p>
 <p align="center"> mia / metamy , c+h freely and w2i . dont be afraid to interact , im not as intimidating as i might seem , i hope ... </p>
 <p align="center"> i am a fictionkin , idc about "doubles" as i am in recovery . im also a system so i'd appreciate it if you didnt treat our fictives like their sources or act like your own fictives know us just because we're "sourcemates" (which arent real) . non-traumagenic systems dni </p>
